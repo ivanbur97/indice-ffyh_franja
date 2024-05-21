@@ -1,3 +1,3 @@
-Indice De Grupos de ingreso 2021 de FFyH 
+Indice De Grupos de FFyH 
 
 FRANJA MORADA
